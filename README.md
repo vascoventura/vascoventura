@@ -15,6 +15,7 @@
 
 
 - 📫 How to reach me:
+--Gmail 👉 vascov31@gmail.com
 --LinkedIn 👉 🏽https://www.linkedin.com/in/vasco-ventura-07a7a8202/
 --Instagram 👉 🏽https://www.instagram.com/vascoventura04/
 --Facebook 👉 @https://www.facebook.com/vasco.ventura

@@ -14,4 +14,4 @@
 - 🎓 Software Engineer Degree in Polytechnic Institute of Guarda, Portugal.
 
 - 📫 How to reach me:
-👉e-mail: vascov31@gmail.com 👉LinkedIn: 🏽https://www.linkedin.com/in/vasco-ventura-07a7a8202/
+👉e-mail: vascov31@gmail.com 👉LinkedIn: 🏽https://www.linkedin.com/in/vasco-ventura/

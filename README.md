@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @vascoventura. Welcome to my profile!
+- 👋 Hi, welcome to my profile! I am Vasco Ventura
 
-- 👍🏽 Hungry for challenges, learning and motivated to dive into the Software World 💻🌎 
+- 👍🏽 I am hungry for challenges, motivated to learn and to dive into the Software World 💻🌎 
 
 - 👨‍💻 Coding Languages normally used:
 --💻 Web Development: HTML, CSS, PHP;
